@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @greenmochatea
+- 👀 I’m interested in reading, and drinking tea
+- 🌱 I’m currently learning how the government works
+- 💞️ I’m looking to collaborate on making unblocked games for students
+- 📫 How to reach me: don't
